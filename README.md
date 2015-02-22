@@ -13,3 +13,29 @@ Attributes
 * Honest, reliable, ethical, loyal and hardworking
 
 
+Employment
+----------
+
+####**International Paint** 
+*Customer Service*
+
+####**Tierra Sol**
+*Sample maker*
+
+####**Apprentice Tile-Setter**
+
+####**University Bookstore**
+*Customer Service*
+
+####**F/T American Triumph**
+*Processor*
+
+####**Engineers' Bookstore**
+*Buyer*
+
+Education
+----------
+
+####**Georgia Institute of Technology**
+*Civil Engineering*
+
