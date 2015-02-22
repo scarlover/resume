@@ -16,21 +16,21 @@ Attributes
 Employment
 ----------
 
-####**International Paint** 
+* ####**International Paint** 
 *Customer Service*
 
-####**Tierra Sol**
+* ####**Tierra Sol**
 *Sample maker*
 
-####**Apprentice Tile-Setter**
+* ####**Apprentice Tile-Setter**
 
-####**University Bookstore**
+* ####**University Bookstore**
 *Customer Service*
 
-####**F/T American Triumph**
+* ####**F/T American Triumph**
 *Processor*
 
-####**Engineers' Bookstore**
+* ####**Engineers' Bookstore**
 *Buyer*
 
 Education
