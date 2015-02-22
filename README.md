@@ -36,8 +36,8 @@ Employment
 Education
 ----------
 
-####**Georgia Institute of Technology**
+[**Georgia Institute of Technology**] (http://www.swag.gatech.edu/sites/swag.gatech.edu/files/assets/ringtones/R-Wreck-vocal.mp3)
+
 *Civil Engineering*
 
-http://nique.net/sports/2008/10/24/ramblin-wreck-song-carries-long-and-storied-history/
 
