@@ -61,7 +61,7 @@ I am stuck and the long hours are an insurmountable barrier to further education
 
 I am smart and creative and completely burnt out.
 
-I applied for the spring session, and was really psyched about the chance to escape my dead-end job and be able to turn my life completely around within a year’s time.
+I applied for your spring session, and was really psyched about the chance to escape my dead-end job and be able to turn my life completely around within a year’s time.
 
 I started daydreaming about what it would be like to work in a less stressful environment with creative, supportive co-workers... did I mention that I tend towards naivety?
 
